@@ -5,3 +5,4 @@
 - 📫 How to reach me: Don't
 - 😄 Pronouns: Your/Problem
 - ⚡ Fun fact: Null
+- 🤔 Is this profile serious: !True
