@@ -2,6 +2,6 @@
 - 👀 I’m interested in: 💀💀💀
 - 🌱 I’m currently learning: 🖥️⌨️🖱️
 - 💞️ I’m looking to collaborate on: ❌
-- 📫 How to reach me: Donùt
+- 📫 How to reach me: Don't
 - 😄 Pronouns: Your/Problem
 - ⚡ Fun fact: Null
