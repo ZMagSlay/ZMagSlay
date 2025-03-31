@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ZMagSlay
+- 👀 I’m interested in: 💀💀💀
+- 🌱 I’m currently learning: 🖥️⌨️🖱️
+- 💞️ I’m looking to collaborate on: ❌
+- 📫 How to reach me: Donùt
+- 😄 Pronouns: Your/Problem
+- ⚡ Fun fact: Null
